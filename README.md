@@ -7,7 +7,7 @@ https://t.me/almur12
 
 ### Обучение
 
-[Сертификат Карпов курсы.pdf](https://github.com/AlenaMuraveva/AlenaMuraveva/files/12817153/default.ipg)
+![Сертификат Карпов курсы.pdf](https://github.com/AlenaMuraveva/AlenaMuraveva/files/12817153/default.png)
 
 
 Сертификат доступен по ссылке https://lab.karpov.courses/certificate/f322c68e-8619-49bf-9ce6-91a3467780c2/

@@ -9,6 +9,7 @@ https://t.me/almur12
 
 ![image](https://github.com/AlenaMuraveva/AlenaMuraveva/assets/146826490/28cce485-df92-48d8-8e2e-02f97713d43d)
 
+![image](https://github.com/AlenaMuraveva/AlenaMuraveva/assets/146826490/3ff76c8b-f4ce-4817-8b49-7827cfab8f4c)
 
 ![image](https://github.com/AlenaMuraveva/AlenaMuraveva/assets/146826490/8276373b-7e65-40f0-a6c4-9a9b01d4cf31)
 
